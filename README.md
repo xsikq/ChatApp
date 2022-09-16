@@ -6,8 +6,8 @@ Butuh bantuan?
 Chat saya di : 
 [Whatsapp](https://wa.me/6283834027073)
 atau
-[Whatsapp2](https://wa.me/6281327016667/)
+[Whatsapp2](https://wa.me/17807777733/)
 atau
-[Whatsapp3](https://wa.me/60145555555/)
+[Whatsapp3](https://wa.me/17807777788/)
 
 
